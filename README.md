@@ -1,2 +1,0 @@
-# sevagram-LP-Reclame
-herculeshof
